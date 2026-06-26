@@ -1,4 +1,3 @@
-# pratik-mane-gh
 
 # Hi 👋, I'm Pratik Uddhav Mane
 
