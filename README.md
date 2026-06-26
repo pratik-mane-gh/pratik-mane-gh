@@ -3,6 +3,7 @@
 ## Full Stack Developer (Fresher)
 
 **Location:** Pune, Maharashtra, India
+
 **Email:** [manepratikofficial@gmail.com](mailto:manepratikofficial@gmail.com)
 
 ---
